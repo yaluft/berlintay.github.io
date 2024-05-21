@@ -1,7 +1,7 @@
 <img style="float:right;border-radius:50%;width:70px;padding:6px" src="me.JPG" />
 
 <span style="float:right;padding:6px">
-    taykea084@gmail.com <br> mobile: (506) 790-5712 <br> Nationality: Canadian
+    taykea084@gmail.com <br> mobile: (506) 790-5712 <br> Home: (506) 329-1287 <br> Nationality: Canadian
 </span>
 
 
@@ -19,8 +19,10 @@
 
 ## Education
 
-* Bachelor of International Relation, Mount Allison University, Sackville, New Bruswick
-* Sugarloaf Senior High School, Campbellton, New-Brunswick - Graduate
+### Bachelor of International Relation, Mount Allison University, Sackville, New Bruswick
+* __*Incomplete*__
+
+### Sugarloaf Senior High School, Campbellton, New-Brunswick - Graduate
 
 ## Skills
 * Languages: English (Fluent/native), French (Fluent/native), German (Intermediate)
