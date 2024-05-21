@@ -1,7 +1,7 @@
 <img style="float:right;border-radius:50%;width:70px;padding:6px" src="me.JPG" />
 
 <span style="float:right;padding:6px">
-    tay@aidot.org <br> mobile: (506) 790-5712 <br> Nationality: Canadian
+    taykea084@gmail.com <br> mobile: (506) 790-5712 <br> Nationality: Canadian
 </span>
 # Joshua Taylor Keays
 
