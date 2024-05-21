@@ -19,10 +19,10 @@
 
 ## Education
 
-### Bachelor of International Relation, Mount Allison University, Sackville, New Bruswick
+#### Bachelor of International Relation, Mount Allison University, Sackville, New Bruswick (February 2019)
 * __*Incomplete*__
 
-### Sugarloaf Senior High School, Campbellton, New-Brunswick - Graduate
+#### Sugarloaf Senior High School, Campbellton, New-Brunswick - Graduate (June 2017)
 
 ## Skills
 * Languages: English (Fluent/native), French (Fluent/native), German (Intermediate)
