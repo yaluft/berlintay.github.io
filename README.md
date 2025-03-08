@@ -7,7 +7,7 @@
 
 ## Working Experience
 
-#### SNDL - Product & Cultivation Technician (October 2024 - December 2024)
+#### SNDL - Product & Cultivation Technician, Atholville, New Brunswick (October 2024 - December 2024)
 * Cloning of Mother Plants ( Cultivation Technician ) 
 * 1st & 2nd Event plant care ( Cultivation Technician ) 
 * Bucking & Trimming of Dried Product ( Product Technician )
