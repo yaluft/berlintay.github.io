@@ -7,9 +7,14 @@
 
 ## Working Experience
 
-#### Subway - Sandwich Artist, Campbellton, New Brunswick ( February, 2023 - June, 2023)
-* Daily food prep
-* Customer Service
+#### SNDL - Product & Cultivation Technician (October 2024 - December 2024)
+* Cloning of Mother Plants ( Cultivation Technician ) 
+* 1st & 2nd Event plant care ( Cultivation Technician ) 
+* Bucking & Trimming of Dried Product ( Product Technician )
+* Plant Repopulation ( Cultivation Technician )
+* Trim & Sorting dried bud inspection ( Product Technician )
+* Dismantling, Disinfection & Cleaning of Equipment ( Product Technician ) 
+
 
 #### Tangerine - Bilingual Customer Service Specialist Level 2, Moncton, New Brunswick (September, 2019 - March, 2021)
 
